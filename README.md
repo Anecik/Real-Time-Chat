@@ -1,1 +1,1 @@
-Siema
+Dzien dobry
