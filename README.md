@@ -1,1 +1,1 @@
-Dzien dobry
+Dobry wieczór
